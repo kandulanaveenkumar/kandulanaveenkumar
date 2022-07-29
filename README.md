@@ -2,7 +2,9 @@
 - 👀 I’m interested in machine learning and artificial intelligence
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to get opportunity that leads to achieve my goal as well as to get more knowledge on what i am doing
-- 📫 How to reach me 
+- 📫 Can be reachable through mail kandulanaveen28@gmail.com
+- ❤❤ Big fan of MSD.
+- 
 
 <!---
 kandulanaveenkumar/kandulanaveenkumar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
