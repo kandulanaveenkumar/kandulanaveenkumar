@@ -4,7 +4,7 @@
 - 💞️ I’m looking to get opportunity that leads to achieve my goal as well as to get more knowledge on what i am doing
 - 📫 Can be reachable through mail kandulanaveen28@gmail.com
 - ❤❤ Big fan of MSD.
-- 
+- Be the best of all 
 
 <!---
 kandulanaveenkumar/kandulanaveenkumar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
